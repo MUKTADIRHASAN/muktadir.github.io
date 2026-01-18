@@ -1,4 +1,3 @@
-# Muktadir Hasan
 ### Computer Science & Engineering Graduate | Aspiring Data Scientist & Software Developer
 
 📍 Dhaka, Bangladesh  
