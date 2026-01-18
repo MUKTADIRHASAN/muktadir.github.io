@@ -1,4 +1,4 @@
-### Computer Science & Engineering Graduate | Aspiring Data Scientist & Software Developer
+### Computer Science & Engineering Graduate
 
 📍 Dhaka, Bangladesh  
 📧 Email: abirkbhs2020@gmail.com  
